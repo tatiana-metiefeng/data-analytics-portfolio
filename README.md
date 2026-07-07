@@ -61,4 +61,4 @@ I want to develop my expertise in Data Analytics and contribute to projects wher
 
 ## 📫 Contact
 
-LinkedIn: 
+LinkedIn: Coming soon
