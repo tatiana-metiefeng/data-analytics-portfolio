@@ -61,4 +61,4 @@ I want to develop my expertise in Data Analytics and contribute to projects wher
 
 ## 📫 Contact
 
-LinkedIn: Coming soon
+LinkedIn: LinkedIn: https://www.linkedin.com/in/tatianametiefeng-4689bb89
